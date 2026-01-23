@@ -7,7 +7,7 @@
 
 - 💬 Ask me about anything, I am happy to help;
 - ⚡️ Fun-Fact: Anything is possible;
-- 📫 How to reach me: 1936343575@qq.com;
+- 📫 How to reach me: einzieg@linux.do;
 
 **Languages and Tools:**
 
